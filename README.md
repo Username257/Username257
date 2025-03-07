@@ -6,6 +6,8 @@
 
 👨‍💻 Now, I use **Unity** and am still passionate about making games and programming!
 
+🤗 **Welcome to my Github!** Feel free to look around and explore.
+
 
 ## My Websites
 
